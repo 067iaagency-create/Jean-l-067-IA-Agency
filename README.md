@@ -29,4 +29,4 @@ Hoje estou à frente da **067 IA Agency**, onde aplico Inteligência Artificial 
 
 ### 📬 Vamos trocar uma ideia?
 - **Agência:** 067 IA Agency
-- **Contato / Redes:** [Seu Link de WhatsApp, Instagram ou LinkedIn aqui]
+- **Contato / Redes:** (67)991833964 / @067.iaagency /067iaagency.useleadsite.app
